@@ -1,0 +1,1 @@
+# teknovo-swot-analysis
